@@ -5,7 +5,7 @@
 
 ### IF Sudeste MG 
 
-> Campus Barbacena
+Campus Barbacena
 
 -----------------
 
